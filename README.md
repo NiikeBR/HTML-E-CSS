@@ -12,6 +12,7 @@
 
 ## Feito por:
 
-### Joana Santos
+### Nicholas Thaylor
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: https://www.linkedin.com/in/nicholas-thaylor
+
